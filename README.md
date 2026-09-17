@@ -12,7 +12,7 @@
 
 <sup><sub> our following goes up each 100 following, so our following may or may not be accurate!!
 
-<sup><sub> 800 following | I do spam-follow on Thursday && Friday , possibly on weekends , we follow your spam (if it has following turned on.) && you'r main acc!! , we don't expect an follow back and that's completely fine ! 
+<sup><sub> 1.3k following | I do spam-follow on Thursday && Friday , possibly on weekends , we follow your spam (if it has following turned on.) && you'r main acc!! , we don't expect an follow back and that's completely fine ! 
 
 
 
