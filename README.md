@@ -21,10 +21,12 @@
 
 
 
-<p align="center"><sup><sub> $\color{#81D6B5}{\textsf{ Thy, constant prancing and ringing of bells is a hazard to our stealth. The Twisteds shall hear thee from floors away!   }}$ 
-<p align="center"><sup><sub>$\color{#a166bc}{\textsf{ Come, on! "Sir-Sulks-a-lot!" A little music keeps the ichor away! Or.. at least it keeps things lively!   }}$ 
-
-- - -
+<p align="center">
 <img src="https://i.postimg.cc/4NCsrd7C/pony-town-jacko-x-boop-sit-blinking-padded-toy336-4x.gif"/>
 <img src="https://i.postimg.cc/Sxkqxvft/pony-town-f-o-doubles-dni-(offtb)-boop-sit-blinking-padded-4x.gif"/>
 
+
+
+
+<p align="center"><sup><sub> $\color{#81D6B5}{\textsf{ Thy, constant prancing and ringing of bells is a hazard to our stealth. The Twisteds shall hear thee from floors away!   }}$ 
+<p align="center"><sup><sub>$\color{#a166bc}{\textsf{ Come, on! "Sir-Sulks-a-lot!" A little music keeps the ichor away! Or.. at least it keeps things lively!   }}$ 
