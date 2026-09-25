@@ -5,8 +5,8 @@
 
 
 
-<p align="center">$\color{#81D6B5}{\textsf{ 𓏲⠀⠀..　Thy, constant prancing and ringing of bells is a hazard to our stealth. The Twisteds shall hear thee from floors away!   }}$ 
-<p align="center">$\color{#a166bc}{\textsf{ 𓏲⠀⠀..　Come, on! "Sir-Sulks-a-lot!" A little music keeps the ichor away! Or.. at least it keeps things lively!   }}$ 
+<p align="center">$\color{#81D6B5}{\textsf{ Thy, constant prancing and ringing of bells is a hazard to our stealth. The Twisteds shall hear thee from floors away!   }}$ 
+<p align="center">$\color{#a166bc}{\textsf{ Come, on! "Sir-Sulks-a-lot!" A little music keeps the ichor away! Or.. at least it keeps things lively!   }}$ 
 
 <img src="https://files.catbox.moe/g199y9.png"/>
 
