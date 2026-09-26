@@ -4,7 +4,7 @@
 <div align="center">
 
 
-<p align="center"> $\color{#81d6b5}{\textsf{ gifted soulvester skins: 3　♡　gift me one n maybe i'll gift u back !    }}$
+<p align="center"> $\color{#81d6b5}{\textsf{ gifted' soulvester skins: 3　♡　gift me one n' maybe i'll gift u back (depends on the time and if i'm lazy..) !    }}$
 
 
 <img src="https://files.catbox.moe/g199y9.png"/>
